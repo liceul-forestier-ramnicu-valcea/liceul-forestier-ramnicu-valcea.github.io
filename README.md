@@ -1,1 +1,1 @@
-# liceul-forestier-ramnicul-valcea.github.io
+# liceul-forestier-ramnicu-valcea.github.io
